@@ -1,2 +1,2 @@
 # Technology-Posts
-As a freelancer, here are a couple of my technology blog posts.
+My technology blog posts as a freelancer are listed below.
